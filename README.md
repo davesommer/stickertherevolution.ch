@@ -1,0 +1,1 @@
+# stickertherevolution.ch
